@@ -3,4 +3,4 @@ Yo guys, I'm Nero. Im one of the Oren's creators. Here you can get more informat
 You can reach me on:
 
 ⌨️• Discord
-- Nero寝ろ#2680
+- Nero寝ろ#3552
